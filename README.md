@@ -1,1 +1,1 @@
-I need help completing this
+Please help with next project
